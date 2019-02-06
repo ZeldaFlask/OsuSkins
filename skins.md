@@ -11,3 +11,5 @@ Click on the skin name to download
 # [Kabla](http://www.mediafire.com/file/4xs977nlrujtqvm/Kabla.osk/file)
 ![](https://osu.ppy.sh/ss/12639685)
 
+# [vallosk](http://www.mediafire.com/file/p6o498rypocq7hz/ShelbisMIXv3.osk/file)
+![](https://https://osu.ppy.sh/ss/12639695)
