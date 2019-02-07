@@ -1,6 +1,6 @@
 # EliteJ6 skins 
 
-Click on the skin name to download
+Click on the skin name to download. I will add screenshots later :)
 
 # [- -+Kek](http://www.mediafire.com/file/6784b1o9i2qt5oj/-_-%252BKek.osk/file)
 ![](https://osu.ppy.sh/ss/12639453)
@@ -13,3 +13,6 @@ Click on the skin name to download
 
 # [vallosk](http://www.mediafire.com/file/p6o498rypocq7hz/ShelbisMIXv3.osk/file)
 ![](https://osu.ppy.sh/ss/12639703)
+
+# [Yugen but with a Flat Yellow cursor](http://www.mediafire.com/file/ovgo6mzcpf56q0c/-_YUGEN.osk/file)
+![]()
