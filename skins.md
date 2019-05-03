@@ -128,8 +128,84 @@ Click on the skin name to download. I will add screenshots later :)
 # [ㅋㅋㅋ](https://www.mediafire.com/file/8b996oc7cq2la4a/QuasiCrystal.osk/file)
 ![](https://osu.ppy.sh/ss/13137893)
 
+# [ㅋㅋㅋ](https://www.reddit.com/r/OsuSkins/comments/al49lf)
+![](https://hedonism.s-ul.eu/a5dKpoV3)
+
+# [ㅋㅋㅋ](https://www.reddit.com/r/OsuSkins/comments/a285wq)
+![](https://ayreth.s-ul.eu/6d1GS1Pb.png)
+
+# [ㅋㅋㅋ](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
+![](https://ayreth.s-ul.eu/5AcmKPnX.png)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/acpuf985oecowbf/Shiginato_Sky.osk/file)
+![](https://osu.ppy.sh/ss/13142494)
+
+# [ㅋㅋㅋ](https://www.reddit.com/r/OsuSkins/comments/afsth6/skin_update_rimuru_tempest_skin_v11/)
+![](https://imgur.com/gallery/0l8XKdw)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/bcga4ere71fbbot/shigenew1.osk/file)
+![](https://osu.ppy.sh/ss/13142506)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/wc8ic472pyfl8cv/NewSkin.osk/file)
+![](https://osu.ppy.sh/ss/13142504)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/og3bx7q2zwbi39b/Binfy%27s_mix.osk/file)
+![](https://osu.ppy.sh/ss/13142514)
+
+# [ㅋㅋㅋ](http://www.mediafire.com/file/vttrc6lkabi7two/Blue.osk/file)
+![](https://osu.ppy.sh/ss/13142518)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/n6tmjbt3umu6n3d/MyHDHRSucks.osk/file)
+![](https://osu.ppy.sh/ss/13142526)
+
+# [ㅋㅋㅋ](https://www.mediafire.com/file/3zb3l3ayupk7ju5/Mizu_latest.osk/file)
+![](https://osu.ppy.sh/ss/13142540)
+
+# [ㅋㅋㅋ]()
+![]()
+
+# ㅋㅋㅋ
+![]()
+
+# [ㅋㅋㅋ]()
+![]()
+
+# [ㅋㅋㅋ]()
+![]()
+
+# [ㅋㅋㅋ]()
+![]()
+
+# [ㅋㅋㅋ]()
+![]()
+
 # []()
 ![]()
 
 # []()
 ![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
+# []()
+![]()
+
