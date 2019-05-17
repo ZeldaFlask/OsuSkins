@@ -113,9 +113,6 @@ Click on the skin name to download. I will add screenshots later :)
 # [ㅋㅋㅋ](http://www.mediafire.com/file/ug0ojjtuzbgqp73/azer8sthetic.osk/file)
 ![](https://osu.ppy.sh/ss/13137875)
 
-# [ㅋㅋㅋ](https://mizaru.s-ul.eu/YUSHPfVw)
-![](https://osu.ppy.sh/ss/11775755)
-
 # [ㅋㅋㅋ](https://www.mediafire.com/file/tdlw0afaz18nlma/-_Fate_Grand_Order.osk/file)
 ![](https://osu.ppy.sh/ss/13137890)
 
