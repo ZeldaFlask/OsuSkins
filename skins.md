@@ -155,24 +155,6 @@ Click on the skin name to download. I will add screenshots later :)
 # [ㅋㅋㅋ](https://www.mediafire.com/file/3zb3l3ayupk7ju5/Mizu_latest.osk/file)
 ![](https://osu.ppy.sh/ss/13142540)
 
-# [ㅋㅋㅋ]()
-![]()
-
-# [ㅋㅋㅋ]()
-![]()
-
-# [ㅋㅋㅋ]()
-![]()
-
-# [ㅋㅋㅋ]()
-![]()
-
-# [ㅋㅋㅋ]()
-![]()
-
-# [ㅋㅋㅋ]()
-![]()
-
 # []()
 ![]()
 
