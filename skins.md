@@ -125,10 +125,10 @@ Click on the skin name to download. I will add screenshots later :)
 # [Hedonism](https://www.reddit.com/r/OsuSkins/comments/al49lf)
 ![](https://hedonism.s-ul.eu/a5dKpoV3)
 
-# [ㅋAyreth(https://www.reddit.com/r/OsuSkins/comments/a285wq)
+# [ㅋAyreth](https://www.reddit.com/r/OsuSkins/comments/a285wq)
 ![](https://ayreth.s-ul.eu/6d1GS1Pb.png)
 
-# [Aytreth](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
+# [Ayreth momoko](https://www.reddit.com/r/OsuSkins/comments/8y8w9e)
 ![](https://ayreth.s-ul.eu/5AcmKPnX.png)
 
 # [Shiginato Sky](https://www.mediafire.com/file/acpuf985oecowbf/Shiginato_Sky.osk/file)
