@@ -2,11 +2,11 @@
 
 Click on the skin name to download. I will add screenshots later :)
 
-# [Kek](http://www.mediafire.com/file/6784b1o9i2qt5oj/-_-%252BKek.osk/file)
-![](https://osu.ppy.sh/ss/12639453)
+# [Kek](https://www.mediafire.com/file/p2v7kqekqbg7cfl/Kek.osk/file)
+![](https://osu.ppy.sh/ss/16287510/2477)
 
 # [FreddieBenson](http://www.mediafire.com/file/ygz6x2wia4sux1s/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F_but_BENSON_TIME.osk/file)
-![](https://osu.ppy.sh/ss/12639445)
+![](https://osu.ppy.sh/ss/16287507/bff9)
 
 # [Sans hitsounds](https://urwomb.s-ul.eu/TWRAE2Zg)
 ![](https://osu.ppy.sh/ss/12427105)
@@ -18,7 +18,7 @@ Click on the skin name to download. I will add screenshots later :)
 ![](https://osu.ppy.sh/ss/12494192)
 
 # [Kabla](http://www.mediafire.com/file/4xs977nlrujtqvm/Kabla.osk/file)
-![](https://osu.ppy.sh/ss/12639685)
+![](https://osu.ppy.sh/ss/16287512/786f)
 
 # [Shelbi's Mix](http://www.mediafire.com/file/p6o498rypocq7hz/ShelbisMIXv3.osk/file)
 ![](https://osu.ppy.sh/ss/12639703)
