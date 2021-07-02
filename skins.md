@@ -4,6 +4,7 @@ Click on the skin name to download. I will add screenshots later :)
 
 # [Kek](https://www.mediafire.com/file/p2v7kqekqbg7cfl/Kek.osk/file)
 ![](https://osu.ppy.sh/ss/16287510/2477)
+# [Kek spring colors](https://www.mediafire.com/file/cfvnwr1h2232vip/Kek_spring_colors.osk/file)
 
 # [FreddieBenson](http://www.mediafire.com/file/ygz6x2wia4sux1s/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F_but_BENSON_TIME.osk/file)
 ![](https://osu.ppy.sh/ss/16287507/bff9)
