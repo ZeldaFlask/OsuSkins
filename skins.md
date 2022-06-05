@@ -8,6 +8,8 @@ Click on the skin name to download. I will add screenshots later :)
 ![](https://osu.ppy.sh/ss/16783800/b90b)
 # [Kek dusk](https://www.mediafire.com/file/etw6ox77alw5mgz/Kek_dusk.osk/file)
 ![](https://osu.ppy.sh/ss/16783803/4718)
+# [Kek summer](https://www.mediafire.com/file/pm2krrz02pkplax/Kek_summer.osk/file)
+![](https://osu.ppy.sh/ss/17867980/256e)
 
 # [FreddieBenson](http://www.mediafire.com/file/ygz6x2wia4sux1s/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F_but_BENSON_TIME.osk/file)
 ![](https://osu.ppy.sh/ss/16287507/bff9)
@@ -159,33 +161,133 @@ Click on the skin name to download. I will add screenshots later :)
 # [Mizu latest](https://www.mediafire.com/file/3zb3l3ayupk7ju5/Mizu_latest.osk/file)
 ![](https://osu.ppy.sh/ss/13142540)
 
-# []()
-![]()
+# [- RyanstolefromJeff](https://mega.nz/file/BLYVSTbA#BP4JJA1FBLVlIJkMlTS3m21jukkfWOkxmvTVdSezxB4)
+![](https://osu.ppy.sh/ss/17838002/4775)
 
-# []()
-![]()
 
-# []()
-![]()
+# [zane skin](https://cdn.discordapp.com/attachments/748660952924291152/969940185750069279/Zane___2020-05-19.osk) 
+![](https://i.imgur.com/LZTdLNV.png)
 
-# []()
-![]()
+# [- Ryanstolefromkevin](https://mega.nz/file/Rb4BBJJD#QBvbBbAj8OX8R43CWV7wPCrjHyJ1RwpjUJN9x76U0a8) 
+![](https://osu.ppy.sh/ss/17714432/a1e8)
+# [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
+![](https://osu.ppy.sh/ss/16525543/bc8f)
 
-# []()
-![]()
+# [azr8cookiezi 2](https://www.mediafire.com/file/iqywimz6o9pw84a/azer8cookiezi_2.osk/file)
+![](https://imgur.com/7rm26gX.png)
 
-# []()
-![]()
+# [azr8 - white](https://www.mediafire.com/file/hwh6brlslzhgn2p/azr8_-_white.osk/file)
+![](https://imgur.com/ec047Lp.png)
 
-# []()
-![]()
+# [azr8 - black 2](https://www.mediafire.com/file/hcmj1zmflctryv7/azr8_-_black_2.osk/file)
+![](https://imgur.com/fYSW7eP.png)
 
-# []()
-![]()
+# [azr8 - black (with colors)](https://www.mediafire.com/file/khbv750svcxwi0m/azr8_-_black_%2528with_colors%2529.osk/file)
+![](https://imgur.com/6SZdEEy.png)
 
-# []()
-![]()
+# [azr8 - black](https://www.mediafire.com/file/jn39z2je7erpody/azr8_-_black.osk/file)
+![](https://imgur.com/BQSlakS.png)
 
-# []()
-![]()
+# [azr8 - nomod](https://www.mediafire.com/file/zhjylhvmruqegp3/azr8_-_nomod.osk/file)
+![](https://imgur.com/TJbvByH.png)
+
+# [azr8 - dt](https://www.mediafire.com/file/ujul57cgsnuvaco/azr8_-_dt.osk/file)
+![](https://imgur.com/Xl8elRx.png)
+
+# [azr8bubbleman - white](https://www.mediafire.com/file/vuk4uktrsfwllom/azr8bubbleman_-_white.osk/file)
+![](https://imgur.com/3aqfb9c.png)
+
+# [azr8bubbleman](https://www.mediafire.com/file/kzjkib8jry3vdpz/azr8bubbleman.osk/file)
+![](https://imgur.com/fpqEScu.png)
+
+# [azr8rafis](https://www.mediafire.com/file/7orx45er30q4g2n/azr8rafis.osk/file)
+![](https://imgur.com/MmwBpqy.png)
+
+# [azr8azerino](https://www.mediafire.com/file/mpiz6vvaulhnjja/azr8azerino.osk/file)
+![](https://imgur.com/Nr54fvU.png)
+
+# [Nara 5.3](https://www.mediafire.com/file/84rf5h0am7wimm1/Nara_5.3.osk/file)
+![](https://i.imgur.com/flm9AtK.png)
+
+# [azr8dsgfnjdsf 4](https://www.mediafire.com/file/2tw3o3679jcugyr/azr8dsgfnjdsf_4.osk/file)
+![](https://imgur.com/e3q704n.png)
+
+# [azr8dsgfnjdsf 3](https://www.mediafire.com/file/e911hmojfemn8uy/azr8dsgfnjdsf_3.osk/file)
+![](https://imgur.com/qOUBVOD.png)
+
+# [azr8dsgfnjdsf 2](https://www.mediafire.com/file/o4jco1y2rkosfxt/azr8dsgfnjdsf_2.osk/file)
+![](https://i.imgur.com/DYdCk9L.png)
+
+# [azr8dsgfnjdsf](https://www.mediafire.com/file/ftw08s4s4mp6vol/azr8dsgfnjdsf.osk/file)
+![](https://i.imgur.com/HG3A8rD.png)
+
+# [#azr8technocandy](https://www.mediafire.com/file/2vcp95q7zbjkw0r/%2523azr8technocandy.osk/file)
+![](https://imgur.com/WDR5QlF.png)  
+
+# [#azr8ima](https://www.mediafire.com/file/lec1ibwsbzoc7pt/%2523azr8ima.osk/file)
+![](https://imgur.com/mjPug8f.png)
+
+# [#azr8test](https://www.mediafire.com/file/ko368mx17nj6m50/%2523azr8test.osk/file)
+![](https://osu.ppy.sh/ss/14036339/0f75)
+
+# [#azr8](https://www.mediafire.com/file/infr9fbh5pjt353/%2523azr8.osk/file)
+![](https://i.imgur.com/WuKcQqo.png)
+
+# [#azer8idke](https://www.mediafire.com/file/avk1qv2hgpmy70f/%2523azer8idke.osk/file)
+![](https://i.imgur.com/41wGAdD.png)
+
+# [#azer8idke 2](https://www.mediafire.com/file/ckz5qic1n6rsq4q/%2523azer8idke_2.osk/file)
+![](https://i.imgur.com/OgZdp6P.png)
+# [zzz dt](https://twelve14.s-ul.eu/KxXzTCWz) 
+![](https://twelve14.s-ul.eu/OMkv0xB5)
+
+# [zzz nomod)](https://twelve14.s-ul.eu/nARc6LOe) 
+![](https://twelve14.s-ul.eu/uzgQHj0V)
+
+# [boop 2](https://twelve14.s-ul.eu/EXwhEqYA) 
+![](https://twelve14.s-ul.eu/wqsYGRL8)
+
+# [howlhamachi edit](https://twelve14.s-ul.eu/kGERl2vC)
+![](https://twelve14.s-ul.eu/DEgxAsYY)
+
+# [Hana Ichinose](https://twelve14.s-ul.eu/HZVZ2Dpi)
+![](https://twelve14.s-ul.eu/FFXhxANI)
+
+# [charlotte ava](https://twelve14.s-ul.eu/ZgOYtpBY)
+![](https://twelve14.s-ul.eu/KequNAtV)
+
+# [cherry](https://twelve14.s-ul.eu/XWGkmq6i)
+![](https://twelve14.s-ul.eu/3SqPQNRc)
+
+# [mightydoc](https://twelve14.s-ul.eu/Ez7TQpa7)
+![](https://twelve14.s-ul.eu/hUGFnh6Y)
+
+# [emerald](https://twelve14.s-ul.eu/2oul97Eq)
+![](https://twelve14.s-ul.eu/UudFaiJB)
+
+# [GOTHIC LOLITA FEVER](https://twelve14.s-ul.eu/cP3IRFbw)
+![](https://twelve14.s-ul.eu/DCLL7vRZ)
+
+# [goodnight](https://twelve14.s-ul.eu/0p04b7W4)
+![](https://twelve14.s-ul.eu/HYapuDKl)
+
+# [zirba](https://twelve14.s-ul.eu/G6ve8blG)
+![](https://twelve14.s-ul.eu/lNwnq928)
+
+# [nara](https://twelve14.s-ul.eu/oTa657gj)
+![](https://twelve14.s-ul.eu/bekAZc4i)
+# [- Seoul v10](https://twitter.com/SeoulessOsu/status/1474508609102954499)
+![](https://i.imgur.com/OS4JrLz.jpg)
+# [- Seoul Nomod v4](https://drive.google.com/file/d/11eX9s3psOkEQj8ExSX8BQ5pE9eozvzFu/view?usp=sharing)
+![](https://i.imgur.com/3eKB3Od.jpg)
+# [-+ Seoul v9 White Cursor](https://shigeskin.s-ul.eu/MTHcrJ9R)
+![](https://i.imgur.com/hHfJP3R.jpeg)
+# [-+ Seoul v9 Pineapple Color](https://shigeskln.s-ul.eu/aZMjYmod)
+![](https://i.imgur.com/WpLyPMn.png)
+# [-+ Seoul v9 Personal Skin Kirby](https://shigeskinss.s-ul.eu/gEfiNoTv)
+![](https://i.imgur.com/CD6mvWT.png)
+# [ Nomod Skin v3](https://drive.google.com/u/0/uc?export=download&confirm=vFXA&id=1yiVky4ATkDQOG-zONI5rb_091RuES2_E)
+![](https://i.imgur.com/RT1uaQ2.png)
+# [Nomod Skin v2](https://shigeskinss.s-ul.eu/vCVa6Zgh)
+![](https://i.imgur.com/NEINUX0.png)
 
