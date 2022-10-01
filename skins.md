@@ -14,8 +14,8 @@ Click on the skin name to download. I will add screenshots later :)
 # [FreddieBenson](http://www.mediafire.com/file/ygz6x2wia4sux1s/%25E3%2581%258A%25E3%2582%2584%25E3%2581%2599%25E3%2581%25BF_%25E3%2580%258Egoodnight%25E3%2580%258F_but_BENSON_TIME.osk/file)
 ![](https://osu.ppy.sh/ss/16287507/bff9)
 
-# [Sans hitsounds](https://urwomb.s-ul.eu/TWRAE2Zg)
-![](https://osu.ppy.sh/ss/12427105)
+# [Sans hitsounds](https://www.mediafire.com/file/mqtflkani9iy0k4/-%252BHey%252BDT_sans.osk/file)
+![](https://osu.ppy.sh/ss/18161380/17b2)
 
 # [pixel atmosphere](https://waa.ai/o5dU)
 ![](https://osu.ppy.sh/ss/13053194)
