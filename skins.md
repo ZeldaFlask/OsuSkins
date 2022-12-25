@@ -2,7 +2,7 @@
 
 Click on the skin name to download. I will add screenshots later :)
 
-# [Kek](https://www.mediafire.com/file/p2v7kqekqbg7cfl/Kek.osk/file)
+# [Kek](https://www.mediafire.com/file/zgor1bzyrotorl3/Kek.osk/file)
 ![](https://osu.ppy.sh/ss/16287510/2477)
 # [Kek spring colors](https://www.mediafire.com/file/cfvnwr1h2232vip/Kek_spring_colors.osk/file)
 ![](https://osu.ppy.sh/ss/16783800/b90b)
