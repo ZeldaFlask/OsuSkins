@@ -1,7 +1,8 @@
 # EliteJ6 skins 
 
 Click on the skin name to download. I will add screenshots later :)
-Added repositories 
+
+Added repositories for more skins
 
 https://github.com/baron6060/harder-to-find-osu-skins
 
