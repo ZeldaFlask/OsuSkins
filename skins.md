@@ -1,15 +1,24 @@
 # EliteJ6 skins 
 
 Click on the skin name to download. I will add screenshots later :)
+Added repositories 
 
 https://github.com/baron6060/harder-to-find-osu-skins
+
 https://github.com/embernuke/Akolibed-osu-skins/blob/main/README.md
+
 https://github.com/DigitalDark/DEMOON-s-osu-skins/blob/main/README.md
+
 https://github.com/Mizaruuu/Abyssal-osu-skins/blob/master/skins.md
+
 https://github.com/venomthor2/morg-osu-skins-epic-wow-
+
 https://github.com/joofixd/vaxei-osu-skins
+
 https://github.com/Mizaruuu/osu-RyuK-s-super-cool-skins/blob/master/Skins.md
+
 https://github.com/MumusLeBG/AzeriteSkins/blob/master/README.md
+
 https://github.com/wonderer0103/osu-skin-asdfasdfasdf
 
 # [Kek](https://www.mediafire.com/file/zgor1bzyrotorl3/Kek.osk/file)
