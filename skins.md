@@ -310,4 +310,4 @@ https://github.com/wonderer0103/osu-skin-asdfasdfasdf
 ![](https://i.imgur.com/RT1uaQ2.png)
 # [Nomod Skin v2](https://shigeskinss.s-ul.eu/vCVa6Zgh)
 ![](https://i.imgur.com/NEINUX0.png)
-
+# [fuyy DT](https://www.mediafire.com/file/n8cl22a5n2ymnhy/-__fuyy_DT.osk/file)
