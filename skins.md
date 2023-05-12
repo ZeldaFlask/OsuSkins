@@ -296,18 +296,28 @@ https://github.com/wonderer0103/osu-skin-asdfasdfasdf
 
 # [nara](https://twelve14.s-ul.eu/oTa657gj)
 ![](https://twelve14.s-ul.eu/bekAZc4i)
+
 # [- Seoul v10](https://twitter.com/SeoulessOsu/status/1474508609102954499)
 ![](https://i.imgur.com/OS4JrLz.jpg)
 # [- Seoul Nomod v4](https://drive.google.com/file/d/11eX9s3psOkEQj8ExSX8BQ5pE9eozvzFu/view?usp=sharing)
 ![](https://i.imgur.com/3eKB3Od.jpg)
+
 # [-+ Seoul v9 White Cursor](https://shigeskin.s-ul.eu/MTHcrJ9R)
 ![](https://i.imgur.com/hHfJP3R.jpeg)
+
 # [-+ Seoul v9 Pineapple Color](https://shigeskln.s-ul.eu/aZMjYmod)
 ![](https://i.imgur.com/WpLyPMn.png)
+
 # [-+ Seoul v9 Personal Skin Kirby](https://shigeskinss.s-ul.eu/gEfiNoTv)
 ![](https://i.imgur.com/CD6mvWT.png)
+
 # [ Nomod Skin v3](https://drive.google.com/u/0/uc?export=download&confirm=vFXA&id=1yiVky4ATkDQOG-zONI5rb_091RuES2_E)
 ![](https://i.imgur.com/RT1uaQ2.png)
+
 # [Nomod Skin v2](https://shigeskinss.s-ul.eu/vCVa6Zgh)
 ![](https://i.imgur.com/NEINUX0.png)
+
 # [fuyy DT](https://www.mediafire.com/file/n8cl22a5n2ymnhy/-__fuyy_DT.osk/file)
+
+#[jo](https://cdn.discordapp.com/attachments/843628282506379295/965086271959597126/jo.osk)
+
